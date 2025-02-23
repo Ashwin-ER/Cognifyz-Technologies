@@ -1,1 +1,1 @@
-# Cognifyz-Technologies
+# Cognifyz-Technologies Internship
